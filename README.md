@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AyoAdeyekun
-- 👀 I’m interested in Technical Recruiter 
+- 👀 I’m a Technical Recruiter 
 - 🌱 I’m currently recruiting for various software roles
 - 📫 Feel free to reach me @ Ifeadeyekun@yahoo.com 
 
